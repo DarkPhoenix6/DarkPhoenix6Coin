@@ -1,1 +1,1 @@
-# DarkPhoenix6Coin
+# DarkPhoenix6Coin - DP6Coin - DP6C
